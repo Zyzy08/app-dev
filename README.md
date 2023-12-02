@@ -16,10 +16,10 @@ Long Hao Chen is one of the central characters in the series. Here's an overview
 
 - **Gender:** Male
 - **Class:** Guardian Knight
-- **Rank:** [Insert Rank]
-- **Elemental Affinity:** [Insert Elemental Affinity]
+- **Rank:** Divine Knight
+- **Elemental Affinity:** Light
 
-Long Hao Chen is known for [insert notable traits or achievements]. As the Guardian Knight, he plays a crucial role in the unfolding events of the series.
+Long Hao Chen is known for Heart of Light. As the Guardian Knight, he plays a crucial role in the unfolding events of the series.
 
 ## Plot Summary
 
@@ -39,15 +39,15 @@ In a world where knights and magical beasts coexist, our hero Long Hao Chen emba
 
 ## Memorable Quotes
 
-> "Insert a memorable quote from Long Hao Chen or the series here."
+> "In the face of darkness, a true knight must rise. With the Throne of Seal at my side, I will fulfill my destiny and protect the balance of this world."
 
 ## Why I Love It
 
-Shen Yin Wangzuo has captured my heart with its intricate plot, well-developed characters, and stunning animation. Long Hao Chen's journey adds depth to the narrative, and the series as a whole keeps viewers on the edge of their seats.
+Shen Yin Wangzuo (Throne of Seal) has captured my heart with its intricate plot, well-developed characters, and stunning animation. Long Hao Chen's journey adds depth to the narrative, and the series as a whole keeps viewers on the edge of their seats.
 
 ## How to Watch
 
-You can watch "Shen Yin Wangzuo" on [streaming service name] or check for availability on other platforms.
+You can watch "Shen Yin Wangzuo (Throne of Seal)" on [WeTV](https://wetv.vip/en) or check for availability on other platforms.
 
-Enjoy the journey into the mystical world of "Shen Yin Wangzuo"!
+Enjoy the journey into the mystical world of "Shen Yin Wangzuo (Throne of Seal)"!
 
