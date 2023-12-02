@@ -1,6 +1,7 @@
 # Shen Yin Wangzuo (Throne of Seal)
 
 ![Shen Yin Wangzuo Poster](https://via.placeholder.com/300)
+![Uploading image.png…]()
 
 ## Overview
 
