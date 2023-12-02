@@ -1,6 +1,6 @@
 # Shen Yin Wangzuo (Throne of Seal)
 
-![Shen Yin Wangzuo Poster](link_to_poster_image)
+![Shen Yin Wangzuo Poster]([link_to_poster_image](https://www.google.com/url?sa=i&url=https%3A%2F%2Fsywz.fandom.com%2Fwiki%2FLong_Hao_Chen&psig=AOvVaw1dXROG2k5POGYOpo8UvuJ4&ust=1701582748511000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCOi1gfGH8IIDFQAAAAAdAAAAABAE))
 
 ## Overview
 
