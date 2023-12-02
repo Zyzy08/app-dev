@@ -1,8 +1,6 @@
 # Shen Yin Wangzuo (Throne of Seal)
 
-![Shen Yin Wangzuo Poster](https://via.placeholder.com/300)
-![image](https://github.com/Zyzy08/app-dev/assets/151698288/552b57bc-a598-4094-b4c8-c697317f422c)
-
+![Shen Yin Wangzuo (Throne of Seal) Poster](https://github.com/Zyzy08/app-dev/assets/151698288/552b57bc-a598-4094-b4c8-c697317f422c)
 
 ## Overview
 
@@ -12,7 +10,7 @@
 
 ### Long Hao Chen
 
-![Long Hao Chen](https://vignette.wikia.nocookie.net/sywz/images/5/5a/Long_Hao_Chen.png/revision/latest/scale-to-width-down/340?cb=20170329115527)
+![Long Hao Chen](https://github.com/Zyzy08/app-dev/assets/151698288/5a3e18dc-8274-4c39-88e6-338a2d5df094)
 
 Long Hao Chen is one of the central characters in the series. Here's an overview of his character:
 
