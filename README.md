@@ -27,15 +27,25 @@ In a world where knights and magical beasts coexist, our hero Long Hao Chen emba
 
 ## Episodes
 
-1. **Episode 1: The Awakening**
-   - [Brief summary of the episode]
-   - [Link to watch on streaming service]
+1. **Episode 1: An Adventurous Journey**
+   - *Summary:* The knights have long fought and defended the borders from the Demon Pillars. Now it is time for the young knights to play their roles. Young Haochen must first become a squire in order to become a knight and protect the ones he loves.
+   - [Watch on WeTV](https://wetv.vip/en/play/nxxyh0x1vp4nydt-Throne%20of%20Seal/a0042ke1gsn-EP1%3A%20Throne%20of%20Seal)
 
-2. **Episode 2: Quest for the Seals**
-   - [Brief summary of the episode]
-   - [Link to watch on streaming service]
+2. **Episode 2: Surrounded By Demon Wolves**
+   - *Summary:* While training in the woods, Haochen encounters a mysterious girl that is being attacked by Wolf demons. Now Haochen must be brave and face these ruthless enemies.
+   - [Watch on WeTV](https://wetv.vip/en/play/nxxyh0x1vp4nydt-Throne%20of%20Seal/d0042l5keop-EP2%3A%20Throne%20of%20Seal)
 
-... (continue with other episodes)
+3. **Episode 3: Training After Becoming A Squire**
+   - *Summary:* After reuniting with his wife, Bai Yue, Long Xingyu learns of his son. He decides to teach his son in order to make him stronger and to slowly get accepted as his father. Back at Odin Temple, Long Xingyu officially takes Haochen as a disciple and prepares him for a Divine Awakening Ritual.
+   - [Watch on WeTV](https://wetv.vip/en/play/nxxyh0x1vp4nydt-Throne%20of%20Seal/i0042pboe0v-EP3%3A%20Throne%20of%20Seal)
+
+4. **Episode 4: Divine Awakening**
+   - *Summary:* As part of his training under Lord Xingyu, Haochen faces his trial for the Divine Awakening to release his innate mana.
+   - [Watch on WeTV](https://wetv.vip/en/play/nxxyh0x1vp4nydt-Throne%20of%20Seal/g0042n5c5ma-EP4%3A%20Throne%20of%20Seal)
+
+5. **Episode 5: Inheritance Ring**
+   - *Summary:* Haochen proves himself to Lord Xingyu and is given the Ring Of Inheritance to help him learn the skills of a Knight.
+   - [Watch on WeTV](https://wetv.vip/en/play/nxxyh0x1vp4nydt-Throne%20of%20Seal/f0042d23sk4-EP5%3A%20Throne%20of%20Seal)
 
 ## Memorable Quotes
 
